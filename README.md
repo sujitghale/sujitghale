@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ghale2004
+- 👋 Hi, I’m @sujitghale
 - 👀  just learning and building
 
 
